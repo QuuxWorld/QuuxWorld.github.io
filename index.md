@@ -18,7 +18,7 @@ But not a camp.  Quux.world!
 
 Friday, November 22 2020  3:54pm PST.  While riding the bus home from work.
 
-## How about an email addres? ##
+## How about an email address? ##
 
 Think about it a little, you will figure something out.
 
